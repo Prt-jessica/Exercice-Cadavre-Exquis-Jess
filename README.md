@@ -13,4 +13,8 @@ Du coup, elle ne mangea pas la pomme.
 Ouf, l'histoire se finit bien et plus vite.
 
 
+
 Blanche neige a toujours eu une préférence pour le petit Simplet.
+
+Et elle viva heureuse jusqu'à la fin avec 7 petits hommes bizarres...
+
